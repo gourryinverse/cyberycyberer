@@ -1,3 +1,3 @@
-It is I, Gourry Inverse, the Cybery Cyberer of the Cybers.
+It is I, Gourry Inverse, the Cybery Cyberer of Cybering the Cybers.
 
 flag: ImGoingForAScuttle
